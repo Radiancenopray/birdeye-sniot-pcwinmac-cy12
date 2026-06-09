@@ -1,4 +1,4 @@
-# 
+# Código abierto birdeye sniper bot herramientas para Mac OS | Turbo birdeye sniper bot herramientas para PC Windows. Con subastas de gas prioritario y baja latencia — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
